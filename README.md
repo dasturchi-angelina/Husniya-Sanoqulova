@@ -3,7 +3,7 @@
 ![TN1SlJb8](https://user-images.githubusercontent.com/89189550/130553227-17424e34-a997-4f21-996a-2d31b04f406b.gif)
 
 ## Sanoqulova Husniya, FullStack Web Developer. 
-### +998-(xx)-xxx-xx-xx ⏩⏩⏩ hsanoqulova777@gmail.com
+### +998-(xx)-xxx-xx-xx ⏩⏩⏩ hsanoqulova7@gmail.com
 
 
 [![Husniya-Sanoqulova's github stats](https://github-readme-stats.vercel.app/api?username=Husniya-Sanoqulova&show_icons=true&title_color=ff0000&icon_color=0000ff&text_color=000000&bg_color=ffffff)](https://github.com/Husniya-Sanoqulova/)
